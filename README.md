@@ -2,6 +2,8 @@
 
 These are a few of my favorite things:
 
+Hello Partner!
+
 - flowers: Daisy
 - Raindrops on roses
 - Whiskers on kittens
